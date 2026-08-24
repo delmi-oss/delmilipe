@@ -1,0 +1,5 @@
+---
+title: "Toxcatl ritual"
+---
+
+The Toxcatl ritual, was held in the honor of the god Tezcatlipoca, and in it's englsih translation as Smoking Mirror. The image that you see is of the ixiptla (impersonator) of the god Smoking Mirror, where the ixiptla is dressed in full "regalia" as it is mentioned in the Florentine codex. Which may be pointing out the clothing and decorations that you can see on the ixiptla. The ritual for the god Tezcatlipoca is said to be prepared a year before the ritual is held, where they keep the ixiptla captive in a home for a year and when they step outisde of that home, the ixiptla plays the flute in the streets. The same flute is then broken into pieces, which then the sacrifice takes place. Before the breaking of the flute they adorn the ixiptla and take him to the Templo Mayor for sacrifice. 

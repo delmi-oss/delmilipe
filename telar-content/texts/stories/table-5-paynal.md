@@ -1,0 +1,5 @@
+---
+title: "Paynal"
+---
+
+In the Nahua definition, Paynal is not recognized for his actions but rather for his attributes and those being his sheild, cape, feather headdresser, and the painting on his face. Paynals attributes come with color, even though it is not seen in the image. For exmaple, his sheild is of turquoise mosaic, his cape of blue-green feathers that are from a hummingbrid and the two sticks that he has on his nose is of turqouise as well. The color of of the cape and headdresser, were known as Maya blue (texotli), which was a symbolism of all that was precious and beautiful. The color turquoise also had it's own as well, known for it's precious color value. Now, why can't we see it in the image? The reason to why it is not seen in the image is because his cape has lost it's solar energy and character or in other words it has lost it's beautiful energy. Which I think can also be said for his sheild and the two sticks from his nose, as they don't show it's turquoise color. 

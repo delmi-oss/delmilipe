@@ -1,0 +1,5 @@
+---
+title: "Learn more"
+---
+
+The acuitlachtli, or "water bear," was a strange and unusual water dwelling animal that was likely a type of nutria. Its name describes it as a "bear," even though it was not actually a bear. The animal was considered unusual because it had the appearance of a furry land mammal while living in an aquatic environment. According to the Florentine Codex, the acuitlachtli normally hid beneath the water and was difficult to see, and it was even believed to cause the water to boil. These behaviors made the animal seem mysterious and abnormal. Its role in the Florentine Codex is important because its behavior was connected to the balance and stability of the environment. The animal became especially significant when one appeared in the freshwater source at Tlatelolco. This was concerning because freshwater was essential for the health and survival of the city's population. The acuitlachtli's appearance therefore became more than just a story about an unusual animal. It showed how animals, water, and environmental changes could affect the balance of an entire community.

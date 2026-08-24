@@ -1,0 +1,5 @@
+---
+title: "Learn more"
+---
+
+The acuitlachtli was hunted after it appeared in a freshwater source at Tlatelolco, where its presence was considered unusual and concerning. The freshwater source was extremely important to the community because clean water was necessary for the health and survival of the city's population. Since the acuitlachtli normally lived in water and was described as having disruptive and abnormal behaviors, its appearance in the city's freshwater supply could have threatened this important resource. The reading suggests that the animal may have entered the water because of environmental changes, such as the dramatic changes in lake levels caused by periods of drought and flooding. The people's decision to hunt the acuitlachtli can therefore be understood as an attempt to restore order and protect the community's water supply. Its story also shows how closely the people connected unusual animal behavior with changes in the environment and the overall balance of their surroundings.

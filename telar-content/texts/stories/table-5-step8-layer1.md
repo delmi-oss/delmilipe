@@ -1,0 +1,5 @@
+---
+title: "Learn more"
+---
+
+After the acuitlachtli was captured and brought to the ruler of Tlatelolco, the ruler was so frightened by the strange animal that he ordered it to be buried in Tepetzinco. The location of its burial was important because Tepetzinco was an area of land near Pantitlan, a significant landscape feature connected to water. It was also the same place where the head of Copil, an enemy who had conspired against the Mexica, had been buried. Because of this connection, the burial of the acuitlachtli was more meaningful than simply disposing of a frightening animal. The reading explains that the animal's burial helped reassert order after its unusual appearance and behavior had disrupted the environment. It also connected the acuitlachtli to an earlier story about the foundation of the city, in which sacrifice played an important role. The decision to bury the animal in this particular location therefore linked the unusual creature to the larger history, environment, and symbolic landscape of Tlatelolco.

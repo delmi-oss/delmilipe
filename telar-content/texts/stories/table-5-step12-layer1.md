@@ -1,0 +1,5 @@
+---
+title: "Learn more"
+---
+
+The jaguar (acelotl) was a powerful ritual material because its "varicolored" coat and predatory nature embodied characteristic traits such as bravery, force, patience, and humility. When the Aztec encountered jaguars in the wild, they observed its hunter vs predator nature, which they admired and took as a source of inspiration in elite Aztec military and divinatory cultures. Furthermore, jaguar skins were used to wrap sacred bundles and appeared in warrior regalia, showing how Aztecs used animal surfaces to convey identity and spiritual power. In the jaguar warrior image, the pelt suit and jaguar helmet transform the Aztec into a being of ritual power, where their bodies serve as a representation of god-bodies. Overall, the jaguar's biological strong traits became cultural symbols that shaped religious meaning, political authority, and ceremonial performance.

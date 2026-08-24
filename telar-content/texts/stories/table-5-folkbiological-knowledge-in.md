@@ -1,0 +1,5 @@
+---
+title: "Folk-Biological Knowledge in Rituals "
+---
+
+The color turquoise (teoxihutl) reveals how the Aztecs treated color and material as living signs of sacred power. In the chapter 9 of the Florentine Codex, turquoise is described as a stone whose blue‑green surface was not just visually striking but spiritually linked directly to god (teotl) through its prefix teo- from teotl. The merchants presenting turquoise in the image show how this material circulated as an elite tribute that was valued for surface and connection to god. The color turquoise demonstrates the chapter’s argument that Aztecs did not separate nature from culture. In fact, the stone’s biological origin, its color, and its represention in ritual use were all part of a single system of meaning that shaped religious identity and ceremonial practice. 

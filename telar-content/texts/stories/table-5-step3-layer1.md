@@ -1,0 +1,5 @@
+---
+title: "Learn more"
+---
+
+Here we can see three people tossing in jade objects, one of which is in the shape of a human, as well as ceramics, and items contained within a reed box.  These items are left within the Pantitlan also with the banners.  Pantitlan is a word meant to actually signify the ‘Place of the Banners’, so banners carry a special significance in regard to the area and rituals intertwined with the nurturers of this land.  Furthermore, as the Codex demonstrates similar dipictions of white flags in the hands of victims being sacrificed, Pantitlan can therefore also be interpreted to mean ‘Place of Sacrifice’.  Here, along with human vessel sacrifices are also sarifices from the remains of the festival Atlcahualo, which would include items such as jade cups, paper garlands, reeds, flame sticks, cloud bundles, wooden bowls, and clay bowls. 

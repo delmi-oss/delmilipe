@@ -1,0 +1,5 @@
+---
+title: "Why do they need to store so much food?"
+---
+
+These cuezcomatl were filled in order to prepare for Necetochuiliztli, a famine that called for intense preparation, failure to do so could have serious consequences. People would store every part of edible plants in order to avoid wasting anything, such as the hair growing from maize cobs, and even ate things that were not common except in dire times, such as herb seeds. The famine affected people so much that those who had failed to store enough food often sold themselves into slavery to go work for merchants or others of high status who had access to sufficient food. This slavery did not just affect one person, but also their bloodline; every one of their descendants would be born into slavery in order to pay off that original debt. People who we
